@@ -3,4 +3,4 @@ You go back to sleep and dream of school anyways. Only this time you are tall an
 
 [You check the message from your friend Ron and it read “Hey buddy, I will be at your house in 5 minutes get ready!”](message.md)
 
-[You check the email from your teacher and it says “You have been marked absent too often to the point you are no longer eligible to pass the class](email.md)
+[You check the email from your teacher and it says “You have been marked absent too often to the point you are no longer eligible to pass the class"](email.md)
