@@ -1,0 +1,1 @@
+You decide to ignore the email from your teacher knowing you will not hear the end of it from him or your mom. You look to see that Ron has texted you that he will be at your house soon and to start getting ready. You drag yourself out of bed and decide to text your sweet time, "Ron could wait" you think.
