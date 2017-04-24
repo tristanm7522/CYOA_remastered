@@ -1,0 +1,4 @@
+You decide the best thing to do is take responsibility and talk to you teacher. You get dress and race to his office before he leaves. Just in time with 10 minutes to spare, you run into his office and ask if he can talk to you for a few. Reluctantly he agrees to meet with you and tells you to take a sit. You express to him that you need to pass the semester and would do anything to make that happen. With a grin, he tells you that because you were a responsible adult he would give you 1 week to complete the 5 papers you are missing. Guess he wasn’t such a jerk after all :-)
+
+
+[THE END](ending-2.md)
