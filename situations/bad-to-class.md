@@ -1,0 +1,3 @@
+Refuse her offer and wait for Ron to get off the bus. She frowns and starts to walk away slowly. Ron finally walks off the bus looking like a pufferfish he cries and is upset with you. You can't find the words to say so you go to class. after classes are over you wait for Ron outside. He doesn't appear but the girl Jackie does. She explains "You must be looking for Sen.. I mean Ron ha ha. We were supposed to meet aat my special spot today. Follow me :D"
+
+[Follow the girl.](follow-girl.md)
