@@ -1,4 +1,4 @@
 You pick choice 2- You think back to all the time where Ron has waited for and think for once you should be the early one. You hop out of bed, take a quick shower, and are down the stairs right before Ron knocks on the door. He is surprised that a slacker like you is really ready. (Good for you) The two of you start down the block to the bus stop when out of nowhere a man in a mask comes up behind you. He demands that you give him your cell phone and all the cash you have on him. Scared out your mind you do as the man says...but that wasn’t enough. He shoots you! Lucky for you are not dead, but doctors inform your parents that you will never walk again…
 
 
-[Continue? :](end-page.md)
+[Continue? :D](end-page.md)
